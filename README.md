@@ -1,1 +1,1 @@
-# youngvitality.png
+# youngvitality
